@@ -5,9 +5,7 @@
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me
 - Email: emran.ali.csecu@gmail.com
-  Facebook:https://www.facebook.com/profile.php?id=100027413474185
-  
-- 
+- Facebook:https://www.facebook.com/profile.php?id=100027413474185 
 - 😄 Pronouns: He
 - ⚡ Fun fact: Love to travel & collaborate with new persons
 
